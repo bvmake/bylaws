@@ -1,4 +1,4 @@
-# AMENDED AND RESTATED BYLAWS OF BRAZOS VALLEY MAKERSPACE
+# BYLAWS OF BRAZOS VALLEY MAKERSPACE
 
 These Amended and Restated Bylaws (the **�Bylaws�**) of Brazos Valley Makerspace, a Texas nonprofit corporation formerly known as Houston Technology Collective, Inc. (the **�Lab�**), amend and restate in their entirety those certain Bylaws of the Lab adopted by the incorporators thereof on or around March 31, 2009. The Bylaws are subject to, and governed by, the Texas Business Organizations Code (the **�TBOC�**) and the Certificate of Formation of the Lab (the **�Certificate of Formation�**), as either may be amended from time to time. In the event of a direct conflict between the provisions of these Bylaws and the mandatory provisions of the TBOC or the provisions of the Certificate of Formation, such provisions of the TBOC or the Certificate of Formation, as the case may be, shall control.
 
